@@ -3,4 +3,4 @@
   My Website!
   
   
-  Avaiable at https://htokosa80.repl.co and https://denisbg2011game.tk
+  Avaiable at https://htokosa80.repl.co and https://denisbg2011game.tk (the second works better)
